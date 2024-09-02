@@ -14,7 +14,7 @@ HTML5 e CSS3 (por enquanto).
 Este projeto está sob a Licença APACHE 2.0. Veja o arquivo LICENSE para mais detalhes.
 
 ## Contato
-Para mais informações, você pode me encontrar em [LinkedIn](https://www.linkedin.com/in/fernandod3v/).
+Para mais informações, você pode me encontrar no [LinkedIn](https://www.linkedin.com/in/fernandod3v/).
 
 
 
