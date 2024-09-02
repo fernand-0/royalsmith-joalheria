@@ -26,3 +26,5 @@ Para mais informações, você pode me encontrar em [LinkedIn](https://www.linke
 ![3 1](https://github.com/user-attachments/assets/d97a516c-12ca-44b3-91bd-50ebd195167e)
 
 ![4 1](https://github.com/user-attachments/assets/5c07c317-542d-4d51-a038-95dfc7cab200)
+
+![1](https://github.com/user-attachments/assets/d06d6457-206c-4b16-9895-c6a16127e9ae)
